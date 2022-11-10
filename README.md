@@ -3,6 +3,7 @@ Tips to organize research
 
 ## About me
 Name: Alex Wong
+
 Q: What kind of researcher do you you tell people you are at dinner parties?
 A: Librarian research/practitioner
 
